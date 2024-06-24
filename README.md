@@ -6,4 +6,4 @@ Irei compartilhar minha jornada e minhas experiências.
 
 
 ## Twitter/X
-[twitter.com/mcarvv1]
+[twitter.com/mcarvv1] [https://x.com/mcarvv1]
